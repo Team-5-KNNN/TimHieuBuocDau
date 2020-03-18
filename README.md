@@ -22,3 +22,7 @@ và cũng dự phòng trường hợp ko trở lại học off được
 - Những nguồn tin đáng tin cậy ở VN (và tg)
 
 - Cách hạn chế tin giả
+
+**Link video tham khảo:
+
+https://youtu.be/unsFhYOa0mM
